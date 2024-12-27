@@ -67,14 +67,6 @@ A results-driven Senior PMO Analyst with over 5 years of experience in project m
   *Aug 2015 - June 2019*  
   CGPA: 7.53
 
-- **Higher Secondary Education (HSSE)** | CBSE  
-  *April 2013 - May 2014*  
-  Science Stream, 62%
-
-- **Secondary Education (SSE)** | CBSE  
-  *April 2011 - May 2012*  
-  General Stream, 8.0 CGPA
-
 ---
 
 ## Skills
